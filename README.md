@@ -1,1 +1,1 @@
-# singolo
+https://krilian88.github.io/singolo/index
